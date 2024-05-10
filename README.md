@@ -1,1 +1,0 @@
-# miyamossanr1kl1h
